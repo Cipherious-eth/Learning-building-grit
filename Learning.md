@@ -43,10 +43,12 @@
 
 
 I know this is a long journey  but i am ready for it   
-**T1MOH: "The more painful the journey to your goal the faster you will get there"**
+**T1MOH: "The more painful the journey to your goal, the faster you will get there"**
                                                             
 
 ## LFGGGGG!!!!!!!!!!!!!!!!!!!!!
+## Grit
+## Web3 our future
  
 
 
